@@ -11,6 +11,6 @@ Los cortes de nuestros dispositivos serán los siguientes:
 
 [![Captura-de-Pantalla-2023-01-20-a-las-17-07-34.png](https://i.postimg.cc/L8sRCsVc/Captura-de-Pantalla-2023-01-20-a-las-17-07-34.png)](https://postimg.cc/MvghXqN5)
 
-[![Captura-de-Pantalla-2023-01-20-a-las-17-07-55.png](https://i.postimg.cc/jq8M6dLw/Captura-de-Pantalla-2023-01-20-a-las-17-07-55.png)](https://postimg.cc/NLH8Bt8B)
+[![Captura-de-Pantalla-2023-01-20-a-las-17-07-55.png](https://i.postimg.cc/sDMC7LDz/Captura-de-Pantalla-2023-01-20-a-las-17-07-55.png)](https://postimg.cc/QHZzr0TY)
 
-[![Captura-de-Pantalla-2023-01-20-a-las-17-08-40.png](https://i.postimg.cc/Qd7SrQS1/Captura-de-Pantalla-2023-01-20-a-las-17-08-40.png)](https://postimg.cc/PCt1W8g5)
+[![Captura-de-Pantalla-2023-01-20-a-las-17-08-40.png](https://i.postimg.cc/kgN1bN89/Captura-de-Pantalla-2023-01-20-a-las-17-08-40.png)](https://postimg.cc/K1zDXMJs)
